@@ -8,5 +8,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ###voce~entrar em contato comigo 💜💜
 
-victori.goesferreira@gmail.com
+victoria.goesferreira@gmail.com
 @lira_victoria2
